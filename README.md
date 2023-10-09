@@ -1,1 +1,1 @@
-# Github1Simone
+Checkpoint 2 – Simone
